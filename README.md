@@ -21,8 +21,3 @@
 لذا ، إذا طرحنا ما تمت إضافته إلى نهاية الإنذار ، فستكون النتيجة 2698 (19 × 142).
 
 ---------------- إذا كنت تعتقد أن القرآن يحتوي على 6346 آية بدلاً من 6348 ، فسوف تذهب إلى الجحيم ----------------
-
-# [انقر لتنزيل المعجزة المرئية في القرآن] (https://github.com/ResadHalife/KuranGorulenMucize/raw/master/Kuran٪20Seen٪20Miracle٪20٪20Reşad٪20Halife.pdf)
-[المعجزة في القرآن - رشاد خليفة] (https://raw.githubusercontent.com/ResadHalife/KuranGorulenMucize/master/kapak.png)
-
-المعجزة في القرآن -> [bit.ly/gorulenmucize] (http://bit.ly/gorulenmucize)
